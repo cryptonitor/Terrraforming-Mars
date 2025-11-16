@@ -1,4 +1,5 @@
 # Terrraforming-Mars
+Still writing. convertign handwritten notes and designs to digital... M
 Delivering results of political will within electioncycles: year1, 2, 3, 4- 1.CFD proof, 2.microhabitat proof, 3.Starship landingthrusters shaping sediment, 4.Observing viable habitatzones forming on Mars.
 
 Like the sludge in a barrel can be gathered indirectly by gyrating the barrel... 
